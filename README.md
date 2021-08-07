@@ -1,1 +1,1 @@
-Project fro improving my skills
+Project to  improve my skills
